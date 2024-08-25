@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Yash45
+- 👀 I’m interested in cricket 
+- 🌱 I’m currently learning coding 
+- 💞️ I’m looking to collaborate on any idea 
+- 📫 How to reach me 8117938772(phone number)
+- 😄 Pronouns: ...
+- ⚡ Fun fact: i don't code so much 
